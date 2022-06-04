@@ -1,2 +1,0 @@
-# neurology-god
-kwakzalverij
